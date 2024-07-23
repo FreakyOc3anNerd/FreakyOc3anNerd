@@ -1,3 +1,4 @@
-# README.md
 
-never will figure out how to use this.
+### O~!! FreakyOc3anNerd
+Hello, you can call me Auggie, Fiizzy, or whatever my skin is.
+
