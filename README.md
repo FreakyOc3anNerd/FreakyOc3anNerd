@@ -8,7 +8,6 @@
 
 You can check out more about me on pateron.
 Here is my shark research that is ongoing at the moment! [https://rentry.co/oxhkahci] 
-This is also ongoing, it's about why the internet should be restricted. [https://rentry.co/TheInternetIssue]
 Night at the Aquarium: Locked In [https://rentry.co/9dn8nvum]
 
 
