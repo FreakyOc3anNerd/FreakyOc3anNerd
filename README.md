@@ -3,7 +3,7 @@
 # O~!! FreakyOc3anNerd !
 
 **Hello, you can call me Auggie, Fiizzy, or whatever my skin is.**
-
+*"We were too close to the stars, I never knew somebody, like you somebody."*
 *I'm an aspiring writer and artist.* 
 
 You can check out more about me on pateron.
