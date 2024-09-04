@@ -1,6 +1,6 @@
 ![imagine having alt text](https://i.pinimg.com/564x/19/d9/35/19d93571a4ba21f3de557f3916ffb7b8.jpg)
 
-# O~!! FreakyOc3anNerd !
+# O~!! R3TROBO0M !
 
 **Hello, you can call me Auggie, Fiizzy, or whatever my skin is.**
 *"We were too close to the stars, I never knew somebody, like you somebody."*
