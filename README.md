@@ -1,6 +1,6 @@
 ![imagine having alt text](https://i.pinimg.com/564x/19/d9/35/19d93571a4ba21f3de557f3916ffb7b8.jpg)
 
-# O~!! R3TROBO0M !
+# O~!! FreakyOc3anNerd !
 
 **Hello, you can call me Auggie, Fiizzy, or whatever my skin is.**
 *"We were too close to the stars, I never knew somebody, like you somebody."*
@@ -8,6 +8,7 @@
 
 You can check out more about me on pateron.
 Here is my shark research that is ongoing at the moment! [https://rentry.co/oxhkahci] 
+Lastly here is basically me yapping about marine biology n shit [https://rentry.co/MarineBiologyStuff]
 
 
 So I will do a quick summary of who I am!
