@@ -1,5 +1,7 @@
 ![imagine having alt text](https://i.pinimg.com/564x/19/d9/35/19d93571a4ba21f3de557f3916ffb7b8.jpg)
 
+![](https://komarev.com/ghpvc/?username=FreakyOc3anNerd)
+
 # O~!! FreakyOc3anNerd !
 
 **Hello, you can call me Auggie, Fiizzy, or whatever my skin is.**
