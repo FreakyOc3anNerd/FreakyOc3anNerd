@@ -1,6 +1,6 @@
 ![imagine having alt text](https://i.pinimg.com/564x/19/d9/35/19d93571a4ba21f3de557f3916ffb7b8.jpg)
 
-![bright green](https://komarev.com/ghpvc/?username=FreakyOc3anNerd)
+![bright green](https://komarev.com/ghpvc/?username=FreakyOc3anNerd&color=orange)
 
 # O~!! FreakyOc3anNerd !
 
