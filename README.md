@@ -6,9 +6,12 @@
 
 **Hello, you can call me Auggie, Fiizzy, or whatever my skin is.**
 *"I'll be waving my hand
-Watching you drown
-Watching you scream
-Quiet or loud"*
+
+*Watching you drown*
+
+*Watching you scream*
+
+*Quiet or loud"*
 *I'm an aspiring writer, marine biologist and artist.* 
 
 You can check out more about me on pateron.
