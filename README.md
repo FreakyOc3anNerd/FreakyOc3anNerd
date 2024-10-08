@@ -5,13 +5,19 @@
 
 **Hello, you can call me Auggie, Fiizzy, or whatever my skin is.**
 
-*"I'll be waving my hand*
+*"Pumpkins scream in the dead of night
 
-*Watching you drown*
 
-*Watching you scream*
+This is Halloween, everybody make a scene
 
-*Quiet or loud"*
+
+Trick or treat 'til the neighbors gonna die of fright
+
+
+It's our town, everybody scream
+
+
+In this town of Halloween"*
 
 *I'm an aspiring writer, marine biologist and artist.* 
 
@@ -26,7 +32,7 @@ Basically I am a want to be marine biologist, I don't have a specific field I st
 
 ***Okay you may have seen me running or walking back in forth in ponytown, usually I do this To relief my unwanted hyperactivity or to get myself tired. I get random sprites of energy so I usually just go back n forth. Also I love the people who cheered me on when I was just going back n forth at docks. teehee <3. It's not suppose to be a silly thing, it's really annoying to have like unwanted hyperactivity at 4am. I get really erritated, the point of this is kind of like a calming skill I had since I was a toddler cause I do this at home too.***
 
-![heh](https://64.media.tumblr.com/30eba6fbebfd7e9603b2d3293d2f42b1/3bf62ad8d20f8b2a-ac/s250x400/28eeb0ea313fc6a16603987e6a814e66af1c2db1.gifv)![giggles](https://64.media.tumblr.com/aef9d0281bbd676b9ec74916bdfdf124/ba16d020129a2a85-32/s100x200/a63677b24e98c35821acfb50a593f1b37c3f90b5.gifv)![sponge](https://64.media.tumblr.com/bf2100700eda677c4f6dc7e5189aa7f9/ba16d020129a2a85-84/s100x200/be5481c321280052837f485084341f6e5caae54f.gifv)![d](https://64.media.tumblr.com/7b5cde0b2c05cc433b065ee2b8ae039a/5ae275cb5323d09f-32/s250x400/fa38d0d8578ebc54bea1030e26f12ec846eaad24.gifv)
+![heh](https://64.media.tumblr.com/26af4d709302e1c52644fad859d3fef8/bfdaf53fdde7a27d-bf/s1280x1920/4096930c0c70ddcb6ba70ace45596c0fa6cdb2f2.jpg)![giggles](https://64.media.tumblr.com/aef9d0281bbd676b9ec74916bdfdf124/ba16d020129a2a85-32/s100x200/a63677b24e98c35821acfb50a593f1b37c3f90b5.gifv)![sponge](https://64.media.tumblr.com/bf2100700eda677c4f6dc7e5189aa7f9/ba16d020129a2a85-84/s100x200/be5481c321280052837f485084341f6e5caae54f.gifv)![d](https://64.media.tumblr.com/7b5cde0b2c05cc433b065ee2b8ae039a/5ae275cb5323d09f-32/s250x400/fa38d0d8578ebc54bea1030e26f12ec846eaad24.gifv)
 ![e](https://64.media.tumblr.com/f77171dbfb8dbe5bf1c754382ff02ee6/666a1b53aaa37e9e-0d/s100x200/6d772c1e36c8cc276394b4a60335b3851a253b78.gifv)
 ![w](https://i.pinimg.com/originals/17/15/7a/17157ab76b20ff41ee4fed2a4002aed0.gif)
 
