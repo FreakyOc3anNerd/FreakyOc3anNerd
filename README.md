@@ -13,6 +13,8 @@ Guys...I can't do it. I CAN'T MAKE A SHADED SKIN ANYMORE. I forgot the skill to 
 
 
 
+If you have seen me talk to myself, no I am not schizo, a system, or insane. I have imaginary friends! Ted, Bruce, and a few others. I had imaginary friends for a while so quit calling me crazy.
+
 *"Pumpkins scream in the dead of night*
 
 
