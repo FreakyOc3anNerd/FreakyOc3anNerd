@@ -6,6 +6,7 @@
 # O~!! FreakyOc3anNerd !
 
 **Hello, you can call me Auggie, Fiizzy, or whatever my skin is.**
+Guys...I can't do it. I CAN'T MAKE A SHADED SKIN ANYMORE. I forgot the skill to shade, now I resort to my beautiful low quality simplifed skins that look like jokes but are actually real skins.
 
 *"Pumpkins scream in the dead of night*
 
