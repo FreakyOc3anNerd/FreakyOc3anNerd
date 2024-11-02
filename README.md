@@ -1,4 +1,4 @@
-![imagine having alt text]((https://i.pinimg.com/236x/ef/af/ba/efafba3405846dcb0270b2d637cbd4b8.jpg))
+![imagine having alt text](https://i.pinimg.com/236x/ef/af/ba/efafba3405846dcb0270b2d637cbd4b8.jpg)
 
 
 ![j](https://komarev.com/ghpvc/?username=FreakyOc3anNerd&color=006994)
