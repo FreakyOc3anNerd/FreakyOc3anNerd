@@ -1,4 +1,5 @@
-![imagine having alt text](https://i.pinimg.com/236x/ef/af/ba/efafba3405846dcb0270b2d637cbd4b8.jpg)
+![imagine having alt text](https://i.pinimg.com/564x/6c/8a/cb/6c8acb5b5e686260f5eb442aede0e710.jpg)
+
 
 
 ![j](https://komarev.com/ghpvc/?username=FreakyOc3anNerd&color=006994)
@@ -45,7 +46,7 @@ Basically I am a want to be marine biologist, I don't have a specific field I st
 
 ***MULTIFANDOM FREAK!! <-- ME :)***
 
-![heh](https://i.pinimg.com/236x/12/bc/41/12bc41778fd0ad42d8df699748aede0f.jpg)
+![heh](https://i.pinimg.com/564x/5c/eb/23/5ceb23168faa3f922774968353d527dc.jpg)
 
 
 These Blinkies represent me rgrggr
