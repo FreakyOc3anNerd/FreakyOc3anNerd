@@ -36,7 +36,7 @@ If you have seen me talk to myself, I am not schizo, a system, or insane. I have
 
 *I'm an aspiring writer, marine biologist and artist.* 
 
-You can check out more about me on pateron.
+You can check out more about me on strawpage.
 Here is my shark research that is ongoing at the moment! [https://rentry.co/oxhkahci] 
 Lastly here is basically me yapping about marine biology n shit [https://rentry.co/MarineBiologyStuff]
 
