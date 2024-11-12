@@ -20,19 +20,18 @@ If you have seen me talk to myself, I am not schizo, a system, or insane. I have
 
 
 
-*"Pumpkins scream in the dead of night*
+*"Die, potato, die*
 
 
-*This is Halloween, everybody make a scene*
+*I baked you a pie!!!*
 
 
-*Trick or treat 'til the neighbors gonna die of fright*
+*Oh boy, what flavour?!?!*
 
 
-*It's our town, everybody scream*
+*Pie, pie, pie!!*
 
 
-*In this town of Halloween"*
 
 *I'm an aspiring writer, marine biologist and artist.* 
 
@@ -47,7 +46,7 @@ Basically I am a want to be marine biologist, I don't have a specific field I st
 
 ***MULTIFANDOM FREAK!! <-- ME :)***
 
-![heh](https://i.pinimg.com/564x/5c/eb/23/5ceb23168faa3f922774968353d527dc.jpg)
+![heh](https://i.pinimg.com/736x/e0/48/8d/e0488d7ea310467f722446c5af6fc654.jpg)
 
 
 These Blinkies represent me rgrggr
