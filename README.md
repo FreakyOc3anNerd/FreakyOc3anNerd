@@ -15,7 +15,7 @@ Guys...I can't do it. I CAN'T MAKE A SHADED SKIN ANYMORE. I forgot the skill to 
 
 
 
-If you have seen me talk to myself, I am not schizo, a system, or insane. I have imaginary friends! Ted, Bruce, and a few others. I had imaginary friends for a while so quit calling me crazy. Also this happens like really randomly, it may come as an on going conversation with them or just a short convo. You can interact with me while I am talking to them, but sometimes I may not respond.
+If you have seen me talk to myself, I am not schizo, a system, or delusional. I have imaginary friends! Ted, Bruce, and a few others. I had imaginary friends for a while so quit calling me crazy. You can interact with me while I am talking to them, but sometimes I may not respond.
 
 
 
