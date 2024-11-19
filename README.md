@@ -15,9 +15,7 @@ Guys...I can't do it. I CAN'T MAKE A SHADED SKIN ANYMORE. I forgot the skill to 
 
 
 
-If you have seen me talk to myself, I am not schizo, a system, or delusional. I have imaginary friends! Ted, Bruce, and a few others. I had imaginary friends for a while so quit calling me crazy. You can interact with me while I am talking to them, but sometimes I may not respond.
-
-
+Hi, so if I end up being on hiatus don't worry I am either taking a break or I am extremly busy with work! I don't usually go on hiatus for too long usually a week or a few days. Anyways, make sure to drink some water byeee!!
 
 
 *"Die, potato, die*
