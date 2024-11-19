@@ -47,6 +47,9 @@ Basically I am a want to be marine biologist, I don't have a specific field I st
 ![heh](https://64.media.tumblr.com/4a6e1528873c50b6260c3935d42bcb99/74edac14312ab501-c9/s540x810/bdb8ce895ed8e0982b1bc443cba12973e27ddb07.pnj)
 
 
+I am neurodivergent but I really don't like mentioning what exactly I have, unless we're friends/close.
+
+
 These Blinkies represent me rgrggr
 
 
