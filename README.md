@@ -6,7 +6,7 @@
 ![j](https://komarev.com/ghpvc/?username=FreakyOc3anNerd&color=006994)
 
 # O~!! FreakyOc3anNerd !
-
+![a](https://www.tiktok.com/@wenschu/video/7351930486685535520?is_from_webapp=1&sender_device=pc)
 **Hello, you can call me Auggie, Fiizzy, or whatever my skin is.**
 
 
