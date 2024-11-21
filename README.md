@@ -7,6 +7,8 @@
 
 # O~!! FreakyOc3anNerd !
 https://www.tiktok.com/@wenschu/video/7351930486685535520
+
+
 **Hello, you can call me Auggie, Fiizzy, or whatever my skin is.**
 
 
