@@ -17,7 +17,7 @@ Guys...I can't do it. I CAN'T MAKE A SHADED SKIN ANYMORE. I forgot the skill to 
 
 
 
-Hi, so if I end up being on hiatus don't worry I am either taking a break or I am extremly busy with work! I don't usually go on hiatus for too long usually a week or a few days. Anyways, make sure to drink some water byeee!!
+I am an Oarfish Legend believer. I love you doomsday fish <3
 
 
 *"Die, potato, die*
