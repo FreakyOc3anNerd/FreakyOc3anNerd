@@ -9,7 +9,7 @@
 https://youtube.com/playlist?list=PLOdD_kfSjYpSX1mW4WdloTuptWJ5t3LJy&si=0wAptnkVzHCWoo-Z <---(What I watch on a daily basis.)
 
 
-**Hello, you can call me Auggie, Fiizzy, or whatever my skin is.**
+**Hello, you can call me Auggie, MarineGuy, or whatever my skin is.**
 
 
 
@@ -17,7 +17,7 @@ Guys...I can't do it. I CAN'T MAKE A SHADED SKIN ANYMORE. I forgot the skill to 
 
 
 
-I am an Oarfish Legend believer. I love you doomsday fish <3
+I am an Oarfish Legend believer. I love you doomsday fish <3 Also yes I am addicted to educational videos.
 
 
 *"Die, potato, die*
