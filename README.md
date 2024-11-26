@@ -6,7 +6,7 @@
 ![j](https://komarev.com/ghpvc/?username=FreakyOc3anNerd&color=006994)
 
 # O~!! FreakyOc3anNerd !
-https://youtube.com/playlist?list=PLOdD_kfSjYpSX1mW4WdloTuptWJ5t3LJy&si=0wAptnkVzHCWoo-Z <---(What I watch on a daily basis.)
+https://www.youtube.com/watch?v=hJl7vkQ918M&list=PLOdD_kfSjYpR-dNR4lu5vOSua_Sved6Gk <---(What I watch on a daily basis.)
 
 
 **Hello, you can call me Auggie, MarineGuy, or whatever my skin is.**
