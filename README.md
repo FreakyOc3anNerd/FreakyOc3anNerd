@@ -1,4 +1,4 @@
-![imagine having alt text](https://64.media.tumblr.com/5ce5e92cb3469ab597ef87f163523926/fb02cc2150c743ab-c9/s540x810/39dfed48f9c10cbd913b602b150c6534a0604548.pnj)
+![imagine having alt text](https://i.pinimg.com/736x/e1/6b/1a/e16b1a6ff85d76992bf356656516e80f.jpg)
 
 
 
@@ -46,7 +46,7 @@ Basically I am a want to be marine biologist, I don't have a specific field I st
 
 ***MULTIFANDOM FREAK!! <-- ME :)***
 
-![heh](https://64.media.tumblr.com/4a6e1528873c50b6260c3935d42bcb99/74edac14312ab501-c9/s540x810/bdb8ce895ed8e0982b1bc443cba12973e27ddb07.pnj)
+![heh](https://i.pinimg.com/originals/a2/78/61/a27861e9304c442a2edf0c7b4141bff8.gif)
 
 
 
