@@ -17,19 +17,10 @@ Guys...I can't do it. I CAN'T MAKE A SHADED SKIN ANYMORE. I forgot the skill to 
 
 
 
-I am an Oarfish Legend believer. I love you doomsday fish <3 Also yes I am addicted to cartoons <3
+#1 on Santas Nice List! C:<
 
 
-*"Die, potato, die*
-
-
-*I baked you a pie!!!*
-
-
-*Oh boy, what flavour?!?!*
-
-
-*Pie, pie, pie!!"*
+*"This Christmas feels like the very first Christmas to me"*
 
 
 
