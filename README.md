@@ -23,6 +23,9 @@ Guys...I can't do it. I CAN'T MAKE A SHADED SKIN ANYMORE. I forgot the skill to 
 I am a age reggresor. 
 
 
+PROSHIPPERS DON'T OWN THAT TREE, WE SHOULD TAKE IT BACK AWAY FROM THEM! If you see me sit near it, it doesn't mean I am a pro. It's just a spot, a spot a pro shouldn't claim for themselves. 
+
+
 *"This Christmas feels like the very first Christmas to me"*
 
 
