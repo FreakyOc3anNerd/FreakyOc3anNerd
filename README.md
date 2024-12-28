@@ -20,7 +20,7 @@ Guys...I can't do it. I CAN'T MAKE A SHADED SKIN ANYMORE. I forgot the skill to 
 #1 on Santas Nice List! C:<
 
 
-I am a age reggresor. 
+I am a age regressor. 
 
 
 *"This Christmas feels like the very first Christmas to me"*
