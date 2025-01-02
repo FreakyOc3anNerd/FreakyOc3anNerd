@@ -15,15 +15,13 @@ https://www.youtube.com/watch?v=hJl7vkQ918M&list=PLOdD_kfSjYpR-dNR4lu5vOSua_Sved
 Guys...I can't do it. I CAN'T MAKE A SHADED SKIN ANYMORE. I forgot the skill to shade, now I resort to my beautiful low quality simplifed skins that look like jokes but are actually real skins. (UPDATE : GUYS I'M GOING TO TRY MY BEST AND START TO SHADE MORE! THIS WILL BE FUN!!)
 
 
-
-#1 on Santas Nice List! C:<
+I'm my own mini celebrity trust.
 
 
 I am a age regressor. 
 
 
-*"This Christmas feels like the very first Christmas to me"*
-
+*You ain't nothin but a broke fien fien fien.*
 
 
 *I'm an aspiring writer, marine biologist and artist.* 
