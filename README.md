@@ -8,7 +8,7 @@
 https://www.youtube.com/watch?v=hJl7vkQ918M&list=PLOdD_kfSjYpR-dNR4lu5vOSua_Sved6Gk <---(What I watch on a daily basis.)
 
 
-**Hello, you can call me Auggie, MarineGuy, or whatever my skin is.**
+**Hello, you can call me MarineGuy, or whatever my skin is. Preferably MarineGuy though.**
 
 
 
