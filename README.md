@@ -27,8 +27,8 @@ Guys...where is the DC area in Ponytown :C
 *I'm an aspiring writer, marine biologist and artist.* 
 
 You can check out more about me on strawpage.
-Here is my shark research that is ongoing at the moment! [https://rentry.co/oxhkahci] 
-Lastly here is basically me yapping about marine biology n shit [https://rentry.co/MarineBiologyStuff]
+
+Just for others info because it seems people do not like me for liking Homestuck, I am no Homestuck fan nor to a condone in reading it mostly because I heard it is complicated, I am not in the fandom and to be honest I never join fandoms I simply enjoy it. I only like the Homestuck characters so don't just assume I am some problematic player for liking something, it is rude and immature. 
 
 
 So I will do a quick summary of who I am!
