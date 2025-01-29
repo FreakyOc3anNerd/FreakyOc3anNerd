@@ -18,7 +18,7 @@ Guys...I can't do it. I CAN'T MAKE A SHADED SKIN ANYMORE. I forgot the skill to 
 I'm my own mini celebrity trust.
 
 
-I am a age regressor. 
+Guys...where is the DC area in Ponytown :C
 
 
 *You ain't nothin but a broke fien fien fien.*
