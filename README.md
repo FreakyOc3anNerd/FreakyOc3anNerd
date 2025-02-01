@@ -12,6 +12,10 @@ https://www.youtube.com/watch?v=hJl7vkQ918M&list=PLOdD_kfSjYpR-dNR4lu5vOSua_Sved
 
 
 
+🙏GUYS DON'T CANCEL ME, I'M EXTREMLY SATIRE. IF I SIT BY THE PRO TREE IT IS BECAUSE IT SHOWS HOW MUCH I DON'T CARE, BECAUSEE IT'S A TREE NOBODY IS GOING TO OWN IT 😭 I FEEL ATTACKED BY THE PEOPLE THAT THINK I'M A PRO OR BEING SERIOUS ABOUT JOKES I MAKE. SCREAMS
+
+
+
 Guys...I can't do it. I CAN'T MAKE A SHADED SKIN ANYMORE. I forgot the skill to shade, now I resort to my beautiful low quality simplifed skins that look like jokes but are actually real skins. (UPDATE : GUYS I'M GOING TO TRY MY BEST AND START TO SHADE MORE! THIS WILL BE FUN!!)
 
 
