@@ -32,7 +32,7 @@ Guys...where is the DC area in Ponytown :C
 
 You can check out more about me on strawpage.
 
-Just for others info because it seems people do not like me for liking Homestuck, I am no Homestuck fan nor to a condone in reading it mostly because I heard it is complicated, I am not in the fandom and to be honest I never join fandoms I simply enjoy it. I only like the Homestuck characters so don't just assume I am some problematic player for liking something, it is rude and immature. Chat I'm going to end up getting cancelled if I like something that other people don't like!! 😔 Abc for lawyer..
+Note : Just for others info because it seems people do not like me for liking Homestuck, I am no Homestuck fan nor to a condone in reading it mostly because I heard it is complicated, I am not in the fandom and to be honest I never join fandoms I simply enjoy it. I only like the Homestuck characters so don't just assume I am some problematic player for liking something, it is rude and immature. Chat I'm going to end up getting cancelled if I like something that other people don't like!! 😔 Abc for lawyer..
 
 So I will do a quick summary of who I am!
 Basically I am a want to be marine biologist, I don't have a specific field I study in yet because I am indecisive, My favourite fish is a vampire fish which I hope to catch one day. I really enjoy answering peoples questions about marine biology and I hope to find any other aspiring marine biologist!
