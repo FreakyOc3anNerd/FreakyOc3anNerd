@@ -16,8 +16,6 @@ https://open.spotify.com/playlist/4J7GiNPHF5XIUCPqnfgIxJ?si=0l0a5MFJRMuP7GFtW096
 
 🙏HEY DON'T CANCEL ME, I'M EXTREMLY SATIRE. IF I SIT BY THE PRO TREE IT IS BECAUSE IT SHOWS HOW MUCH I DON'T CARE, BECAUSEE IT'S A TREE NOBODY IS GOING TO OWN A PIXEL TREE😭 I FEEL ATTACKED BY THE PEOPLE THAT THINK I'M A PRO OR BEING SERIOUS ABOUT JOKES I MAKE. 
 
-
-
 Guys...I can't do it. I CAN'T MAKE A SHADED SKIN ANYMORE. I forgot the skill to shade, now I resort to my beautiful low quality simplifed skins that look like jokes but are actually real skins. (UPDATE : GUYS I'M GOING TO TRY MY BEST AND START TO SHADE MORE! THIS WILL BE FUN!!)
 
 
@@ -34,8 +32,7 @@ Guys...where is the DC area in Ponytown :C
 
 You can check out more about me on strawpage.
 
-Just for others info because it seems people do not like me for liking Homestuck, I am no Homestuck fan nor to a condone in reading it mostly because I heard it is complicated, I am not in the fandom and to be honest I never join fandoms I simply enjoy it. I only like the Homestuck characters so don't just assume I am some problematic player for liking something, it is rude and immature. 
-
+Just for others info because it seems people do not like me for liking Homestuck, I am no Homestuck fan nor to a condone in reading it mostly because I heard it is complicated, I am not in the fandom and to be honest I never join fandoms I simply enjoy it. I only like the Homestuck characters so don't just assume I am some problematic player for liking something, it is rude and immature. Chat I'm going to end up getting cancelled if I like something that other people don't like!! 😔 Abc for lawyer..
 
 So I will do a quick summary of who I am!
 Basically I am a want to be marine biologist, I don't have a specific field I study in yet because I am indecisive, My favourite fish is a vampire fish which I hope to catch one day. I really enjoy answering peoples questions about marine biology and I hope to find any other aspiring marine biologist!
