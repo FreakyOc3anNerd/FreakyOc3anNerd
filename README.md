@@ -24,7 +24,7 @@ I'm my own mini celebrity trust.
 Guys...where is the DC area in Ponytown :C
 
 
-*You ain't nothin but a broke fien fien fien.*
+*2, 4, 6, 8, who do we appreciate?*
 
 
 *I'm an aspiring writer, marine biologist and artist.* 
