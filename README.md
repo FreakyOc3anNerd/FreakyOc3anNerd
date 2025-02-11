@@ -12,6 +12,8 @@ https://open.spotify.com/playlist/4J7GiNPHF5XIUCPqnfgIxJ?si=0l0a5MFJRMuP7GFtW096
 
 **Hello, you can call me MarineGuy, or whatever my skin is. Preferably MarineGuy though.**
 
+ Let's talk about GS. ---> https://docs.google.com/document/d/1xR3XudR-QI5b6DpMeRWI_ySnn6kijxfLhqz_odIpyog/edit?tab=t.0
+
 Getting back into a researching phase. 😭
 
 Guys...I can't do it. I CAN'T MAKE A SHADED SKIN ANYMORE. I forgot the skill to shade, now I resort to my beautiful low quality simplifed skins that look like jokes but are actually real skins. 
