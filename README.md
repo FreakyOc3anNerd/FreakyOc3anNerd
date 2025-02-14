@@ -5,9 +5,9 @@
 ![j](https://komarev.com/ghpvc/?username=FreakyOc3anNerd&color=006994)
 
 # O~!! FreakyOc3anNerd !
-https://www.youtube.com/watch?v=hJl7vkQ918M&list=PLOdD_kfSjYpR-dNR4lu5vOSua_Sved6Gk <---(What I watch on a daily basis.)
+[What I watch on a daily basis.](https://www.youtube.com/watch?v=hJl7vkQ918M&list=PLOdD_kfSjYpR-dNR4lu5vOSua_Sved6Gk)
 
-https://open.spotify.com/playlist/4J7GiNPHF5XIUCPqnfgIxJ?si=0l0a5MFJRMuP7GFtW096yw <---(MarineGuy playlist 😏)
+[MarineGuy playlist 😏](https://open.spotify.com/playlist/4J7GiNPHF5XIUCPqnfgIxJ?si=0l0a5MFJRMuP7GFtW096yw)
 
 
 **Hello, you can call me MarineGuy, or whatever my skin is. Preferably MarineGuy though.**
