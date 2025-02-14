@@ -56,7 +56,7 @@ https://github.com/user-attachments/assets/0aba8af1-ec74-4cf5-a501-7e8268dd810f
 
 
 
-These Blinkies represent me rgrggr
+
 
 
 ![a](https://64.media.tumblr.com/87868bb6e310b8c8960e6ce1e40eb59e/1d0b565ea482fe74-48/s1280x1920/351c06fe44c1be337661f2cf0536b8119f988d88.gifv)
