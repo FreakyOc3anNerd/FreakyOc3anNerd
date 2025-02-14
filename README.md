@@ -1,10 +1,14 @@
-[![Watch the video](https://i.pinimg.com/736x/70/4f/1c/704f1c1bd1e754ec8eadf37a86afe827.jpg)](https://www.tiktok.com/@mathias.ae/video/7321810478341082400?is_from_webapp=1&sender_device=pc)
+
+
+
+
+![2025_02_13_0xn_Kleki](https://github.com/user-attachments/assets/240d8e64-1bd4-43af-b2e6-b23cf68e8d9c)
 
 
 
 ![j](https://komarev.com/ghpvc/?username=FreakyOc3anNerd&color=006994)
 
-# O~!! FreakyOc3anNerd !
+# 🐟~!! MARINEGUY !
 [What I watch on a daily basis.](https://www.youtube.com/watch?v=hJl7vkQ918M&list=PLOdD_kfSjYpR-dNR4lu5vOSua_Sved6Gk)
 
 [MarineGuy playlist 😏](https://open.spotify.com/playlist/4J7GiNPHF5XIUCPqnfgIxJ?si=0l0a5MFJRMuP7GFtW096yw)
@@ -32,10 +36,22 @@ You can check out more about me on strawpage.
 So I will do a quick summary of who I am!
 Basically I am a want to be marine biologist, I don't have a specific field I study in yet because I am indecisive, My favourite fish is a vampire fish which I hope to catch one day. I really enjoy answering peoples questions about marine biology and I hope to find any other aspiring marine biologist!
 
+https://github.com/user-attachments/assets/0aba8af1-ec74-4cf5-a501-7e8268dd810f
+
+
 
 ***MULTIFANDOM FREAK!! <-- ME :)***
 
-![heh](https://i.pinimg.com/736x/fd/9f/0c/fd9f0c620165fae354c461fdcce5ba08.jpg)
+
+
+
+
+
+
+
+
+
+
 
 
 
