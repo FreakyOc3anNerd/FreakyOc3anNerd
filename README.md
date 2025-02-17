@@ -19,10 +19,14 @@
 
 
 Guys...I can't do it. I CAN'T MAKE A SHADED SKIN ANYMORE. I forgot the skill to shade, now I resort to my beautiful low quality simplifed skins that look like jokes but are actually real skins.
+
+
+
+
 I'm my own mini celebrity trust.
 
 
-Guys...where is the DC area in Ponytown :C
+
 
 
 *"2, 4, 6, 8, who do we appreciate?"*
