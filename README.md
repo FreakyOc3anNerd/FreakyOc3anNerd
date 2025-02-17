@@ -18,8 +18,7 @@
 
 [I have high functioning autism.](https://specialolympicsarizona.org/what-is-high-functioning-autism/)
 
-Guys...I can't do it. I CAN'T MAKE A SHADED SKIN ANYMORE. I forgot the skill to shade, now I resort to my beautiful low quality simplifed skins that look like jokes but are actually real skins. 
-
+Guys...I can't do it. I CAN'T MAKE A SHADED SKIN ANYMORE. I forgot the skill to shade, now I resort to my beautiful low quality simplifed skins that look like jokes but are actually real skins.
 I'm my own mini celebrity trust.
 
 
