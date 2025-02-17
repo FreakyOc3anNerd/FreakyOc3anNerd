@@ -2,7 +2,7 @@
 
 
 
-![2025_02_13_0xn_Kleki](https://github.com/user-attachments/assets/240d8e64-1bd4-43af-b2e6-b23cf68e8d9c)
+![a](https://i.pinimg.com/736x/60/b8/db/60b8dbd159a8732550c4f4593643639c.jpg)
 
 
 
@@ -36,7 +36,7 @@ You can check out more about me on strawpage.
 So I will do a quick summary of who I am!
 Basically I am a want to be marine biologist, I don't have a specific field I study in yet because I am indecisive, My favourite fish is a vampire fish which I hope to catch one day. I really enjoy answering peoples questions about marine biology and I hope to find any other aspiring marine biologist!
 
-https://github.com/user-attachments/assets/0aba8af1-ec74-4cf5-a501-7e8268dd810f
+![a](https://i.pinimg.com/originals/07/0d/e0/070de0643087ff05f4326c9c213285ed.gif)
 
 
 
