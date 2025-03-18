@@ -9,3 +9,4 @@ I will miss Ponytown & all the great memories I had with my friends + many other
 
 Bye, Salmon, Sen, Cross, GothicCowboy, Lula & many others. 
 
+Know that I might change my mind but that I don't know for sure. I had some time thinking about it, if someone were to change my mind then that be hard. 
