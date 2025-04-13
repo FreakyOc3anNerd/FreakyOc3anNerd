@@ -1,6 +1,5 @@
 Whoever saw the note yesterday, I'm fine. 
 
-Bye <3
+I'm taking myself to the hospital, goodbye. 
 
-
-"Life is but an empty dream."
+This is the end of MarineGuy, I hope my friends had fun talking with me and everyone had fun meeting me on Ponytown. I think it's time. 
